@@ -1,0 +1,1 @@
+My aim is to gain skills as a web developer and understanding what I am doing. I hope to create various projects so I can be more comfortable in this new field. Currently I feel overwhelmed, lost,and no idea if I am doing this correctly. 
